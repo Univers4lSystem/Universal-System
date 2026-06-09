@@ -37,7 +37,7 @@ ___
 INT without issues, unless specified in my Pony name with IWC or DNI(uf).
 You're welcome to sit with me even if I'm with someone, just be mindful of whoever is already with me.
 
-### please me mindful to littles, not all of then but some can have a more child-like or childish reaction to stuff, unless specified otherwise act with cautions. 
+**please me mindful to littles, not all of then but some can have a more child-like or childish reaction to stuff, unless specified otherwise act with cautions.**
 
 if I don't respond wisp to me, I might be off-tab or afk.
 
