@@ -19,6 +19,7 @@ Anyone who hates ppl for being furry, therian ect..
 WSS, please get away from us
 DT, Tommyinnit, Jack stans (idgaf about fans)
 Endogenic (and everything that falls in that category) "systems"
+
 ___
 
 
