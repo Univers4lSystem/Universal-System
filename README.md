@@ -34,6 +34,7 @@ ___
 
 
 <img src="https://files.catbox.moe/u5ak34.png" width="169" align="right">
+
 * INT without issues, unless specified in my Pony name with IWC or DNI(uf).
 
 * You're welcome to sit with me even if I'm with someone, just be mindful of whoever is already with me.
