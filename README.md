@@ -1,3 +1,4 @@
+<img src="https://files.catbox.moe/fu3bcm.png">
 # Details about the Universal System....
 
 * DID (probably polyfragmented)
