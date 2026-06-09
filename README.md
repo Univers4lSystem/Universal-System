@@ -13,7 +13,7 @@
 
 
 ____
-![](https://files.catbox.moe/nnvurg.png#300x300)
+<img src="https://files.catbox.moe/nnvurg.png" width="48">
 DNI:
 Basic DNI criteria
 Anyone who hates ppl for being furry, therian ect..
